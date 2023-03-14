@@ -1,7 +1,9 @@
-### **Define Success**: Set Overall Mission and Iterative Goals
+# A Mission and Teamwork Focused Elite Performance Methodology
 
-### **Identify Your Path**: Build, Implement, and Improve Living Processes with Purpose
+## **Define Success**: Set Overall Mission and Iterative Goals
 
-### **Execute as a Team**: Trust, Communicate, and Cooperate
+## **Identify Your Path**: Build, Implement, and Improve Living Processes with Purpose
 
-### **Transform and Innovate**: Experiment, Measure, Analyze, Decide, Act
+## **Execute as a Team**: Trust, Communicate, and Cooperate
+
+## **Transform and Innovate**: Experiment, Measure, Analyze, Decide, Act
